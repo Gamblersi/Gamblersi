@@ -1,4 +1,4 @@
-GMABLE WHILE YOU CAN ! 
+GMABLE WHILE YOU CAN ! remake soon
 <!--
 **Gamblersi/Gamblersi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
