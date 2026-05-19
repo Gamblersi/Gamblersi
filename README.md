@@ -1,5 +1,4 @@
-## Hi there 👋
-
+GMABLE WHILE YOU CAN ! 
 <!--
 **Gamblersi/Gamblersi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
