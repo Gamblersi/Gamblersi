@@ -1,11 +1,11 @@
 GMABLE WHILE YOU CAN ! remake soon
+ayyy this is me yo - art by me
+<img width="514" height="350" alt="image" src="https://github.com/user-attachments/assets/423bde26-b2cd-4ab1-9d03-6bb1d3b416e5" />
+
+────୨ৎ────
 
 <img width="582" height="527" alt="image" src="https://github.com/user-attachments/assets/c89b19a6-bd53-4981-ae72-1bd9bb3c1e6b" />
 
 hi this is my pet spade isn't he so cute
 
 ────୨ৎ────
-
-<img width="735" height="516" alt="13211" src="https://github.com/user-attachments/assets/07771b44-35cd-40ae-a708-2b3d73e04a19" />
-
-they so cute they so fat UGHH THEY MAKE ME SICK
