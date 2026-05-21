@@ -11,3 +11,6 @@ ayyy this is me yo - art by me the rest are not mine
 hi this is my pet spade isn't he so cute
 
 ────୨ৎ────
+<img width="748" height="216" alt="image" src="https://github.com/user-attachments/assets/b1908511-7fdd-4791-873a-51a4329d4dc2" />
+
+i hit the jackpot btw
