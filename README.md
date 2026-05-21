@@ -1,5 +1,6 @@
 GMABLE WHILE YOU CAN ! remake soon
-ayyy this is me yo - art by me
+
+ayyy this is me yo - art by me the rest are not mine
 <img width="514" height="350" alt="image" src="https://github.com/user-attachments/assets/423bde26-b2cd-4ab1-9d03-6bb1d3b416e5" />
 
 ────୨ৎ────
