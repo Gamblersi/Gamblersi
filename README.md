@@ -1,4 +1,4 @@
-everyone: mark when are you gonna remake your github!
+everyone: mark when are you going to remake your github!
 
 mark  :
 
