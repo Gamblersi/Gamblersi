@@ -13,6 +13,14 @@
 <p align="center"> ₍꒰𓏼  𓈒ּ֯݁    C+H with me anytime ! / 5teen / he they strictly ꒱ྀ
 <p align="center"> ₍  𓏼⠀ bmf i don't bite ay ? 🎲♟️ ♪｡
 
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3177ddkblmozlf6i35e2k4ues4ou&cover_image=true&theme=natemoo-re&show_offline=false&background_color=d4d4d4&interchange=false&profanity=true&hide_remaster=false&bar_color=e8e8e8&bar_color_cover=false">
+  </a>
+</p>
+
+
   
 <p align="center"> <img width="2048" height="157" alt="image" src="https://github.com/user-attachments/assets/a7ccdcde-cf39-4092-980d-33425cc7e076" />
 
