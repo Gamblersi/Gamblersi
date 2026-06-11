@@ -1,9 +1,6 @@
 <p align="center">
-  
-![Typing SVG](https://readme-typing-svg.demolab.com?font=Lobster+Two&size=30&pause=1000&color=000000&background=808080&center=true&width=435&lines=%22gamble+with+our+time%22;%22because+chances+on+our+side")
-
-
-
+<img height="50" width="500" src="https://readme-typing-svg.demolab.com?font=Lobster&size=30&pause=1000&color=000000&background=808080&center=true&vCenter=true&width=435&lines=Gamble+with+our+time;Because+chances+on+our+side" />
+</p>
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=gamblersi&color=636363&label=🎲"> </p>  <p align="center"> <img width="20" height="20" alt="tumblr_6905024411fc814c44bbc6eba03f53f7_c53baa35_75" src="https://github.com/user-attachments/assets/4e55b7e1-9fca-4627-8763-12d052bdd8fe" />
 
