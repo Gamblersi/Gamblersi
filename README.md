@@ -1,3 +1,10 @@
+<p align="center">
+  
+![Typing SVG](https://readme-typing-svg.demolab.com?font=Lobster+Two&size=30&pause=1000&color=000000&background=808080&center=true&width=435&lines=%22gamble+with+our+time%22;%22because+chances+on+our+side")
+
+
+
+
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=gamblersi&color=636363&label=🎲"> </p>  <p align="center"> <img width="20" height="20" alt="tumblr_6905024411fc814c44bbc6eba03f53f7_c53baa35_75" src="https://github.com/user-attachments/assets/4e55b7e1-9fca-4627-8763-12d052bdd8fe" />
 
 
@@ -31,6 +38,8 @@
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/dcbaa27c-2a82-427a-8a91-d0c4c012c06f" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/08279b61-0496-492f-a038-57bf20952ae4" />
 
-<img width="462" height="462" alt="image" src="https://github.com/user-attachments/assets/9ba43612-2020-4dde-972e-93c58710f35c" />
+
+
+<p align="center"> <img width="462" height="462" alt="image" src="https://github.com/user-attachments/assets/9ba43612-2020-4dde-972e-93c58710f35c" />
 
 <p align="center"> hmmmmyes i look sooo good thank u oomf for this awesome drawing @treatmelikeurp3t
