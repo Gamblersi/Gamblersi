@@ -35,6 +35,8 @@
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/dcbaa27c-2a82-427a-8a91-d0c4c012c06f" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/08279b61-0496-492f-a038-57bf20952ae4" />
 
+<p align="center"> I'm known as chance biggest <a href= "https://github.com/fan-town"> fan </a>
+
 
 
 <p align="center"> <img width="462" height="462" alt="image" src="https://github.com/user-attachments/assets/9ba43612-2020-4dde-972e-93c58710f35c" />
