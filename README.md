@@ -8,7 +8,7 @@
 <p align="center"> <img width="100" height="18" alt="tumblr_700ccfff3c648a56f0dfcc385cd44c9d_00c158a3_100" src="https://github.com/user-attachments/assets/c3845595-8e61-462b-99d4-d3ccda054ca8" />
 
 
-<p align="center"><img width="800" height="459" alt="14669" src="https://github.com/user-attachments/assets/577a35a7-0837-49f9-9dfe-bf02a7221138" />
+<p align="center"><img width="700" height="390" alt="14669" src="https://github.com/user-attachments/assets/577a35a7-0837-49f9-9dfe-bf02a7221138" />
 
 
 <p align="center"> 
