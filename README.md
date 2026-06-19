@@ -17,6 +17,8 @@
 
 <p align="center"> ₍꒰𓏼  𓈒ּ֯݁    C+H with me anytime ! / 5teen / he they strictly ꒱ྀ
 <p align="center"> ₍  𓏼⠀ bmf i don't bite ay ? 🎲♟️ ♪｡
+<p align="center">  ᶻz﹒∿﹒﹒chance heavy kin!! (idm doubles) ﹒谷
+<p align="center"> <img width="40" height="40" alt="14804" src="https://github.com/user-attachments/assets/b21ec038-e582-480f-bff7-1ec971d1ddab" />
 
 
 <p align="center">
@@ -36,4 +38,4 @@
 <p align="center"> I'm known as chance biggest <a href= "https://github.com/fan-town"> fan </a>
 
 
-<p align="center"> <img width="720" height="298" alt="14769" src="https://github.com/user-attachments/assets/dbabf283-f952-4c05-be2c-4517b2100b46" />
+<p align="center"> <img width="620" height="298" alt="14769" src="https://github.com/user-attachments/assets/dbabf283-f952-4c05-be2c-4517b2100b46" />
