@@ -8,9 +8,9 @@
 <p align="center"> <img width="100" height="18" alt="tumblr_700ccfff3c648a56f0dfcc385cd44c9d_00c158a3_100" src="https://github.com/user-attachments/assets/c3845595-8e61-462b-99d4-d3ccda054ca8" />
 
 
-<p align="center"><img width="600" height="340" alt="14669" src="https://github.com/user-attachments/assets/577a35a7-0837-49f9-9dfe-bf02a7221138" />
+<p align="center"><img width="620" height="400" alt="14770" src="https://github.com/user-attachments/assets/8e1ff9e4-3ce5-4784-ba63-8eacbe69529e" />
 
-
+  
 <p align="center"> 
 𑣲 ⸝⸝ <a href= "https://jackpot.atabook.org/"> 𝓐TA </a>ㅤ♤ ♡ ♧ ♢ㅤ<a href= "https://pronouns.cc/@JACKPOT">𝓟RNS.CC</a>ㅤ♤ ♡ ♧ ♢ㅤ<a href= "https://bunnygambler.straw.page">𝓢TRAW</a>󠀠 ⸝⸝ <img width="20" height="20" alt="tumblr_4b6f508f9ee725e365a3bc0a8639b796_94bf25a2_75" src="https://github.com/user-attachments/assets/7a257257-5919-47ee-b886-ccb6d8757307" />
 
@@ -26,9 +26,7 @@
 </p>
 
 
-  
-<p align="center"> <img width="2048" height="157" alt="image" src="https://github.com/user-attachments/assets/a7ccdcde-cf39-4092-980d-33425cc7e076" />
-
+<p align="center">
 <img width="99" height="56" alt="tumblr_6bec7c9199110b9ca50c6251c121a6c5_fe4d5e90_100" src="https://github.com/user-attachments/assets/e70819ac-6621-44b2-b6f6-ea1128e222d2" />
 <img width="99" height="56" alt="tumblr_5e6aef1becfffa5411d6f5ec5c71d515_1104c55e_100" src="https://github.com/user-attachments/assets/cf6976e3-6d76-4956-af06-0d3407339f53" />
 <img width="99" height="56" alt="tumblr_c2e58ee4cb65edf46a4269a80f839d22_0721ceec_100" src="https://github.com/user-attachments/assets/a527ebf7-7c5b-4a9c-81d0-d39cf187fd78" />
@@ -38,7 +36,4 @@
 <p align="center"> I'm known as chance biggest <a href= "https://github.com/fan-town"> fan </a>
 
 
-
-<p align="center"> <img width="462" height="462" alt="image" src="https://github.com/user-attachments/assets/9ba43612-2020-4dde-972e-93c58710f35c" />
-
-<p align="center"> hmmmmyes i look sooo good thank u oomf for this awesome drawing @treatmelikeurp3t
+<p align="center"> <img width="720" height="298" alt="14769" src="https://github.com/user-attachments/assets/dbabf283-f952-4c05-be2c-4517b2100b46" />
