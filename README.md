@@ -12,7 +12,7 @@
 
   
 <p align="center"> 
-𑣲 ⸝⸝ <a href= "https://jackpot.atabook.org/"> 𝓐TA </a>ㅤ♤ ♡ ♧ ♢ㅤ<a href= "https://pronouns.cc/@JACKPOT">𝓟RNS.CC</a>ㅤ♤ ♡ ♧ ♢ㅤ<a href= "https://bunnygambler.straw.page">𝓢TRAW</a>󠀠 ⸝⸝ <img width="20" height="20" alt="tumblr_4b6f508f9ee725e365a3bc0a8639b796_94bf25a2_75" src="https://github.com/user-attachments/assets/7a257257-5919-47ee-b886-ccb6d8757307" />
+𑣲 ⸝⸝ <a href= "https://jackpot.atabook.org/"> 𝓐TA </a>ㅤ♤ ♡ ♧ ♢ㅤ<a href= "https://fluffle.cc/takeachance">𝓕UFFLE.CC</a>ㅤ♤ ♡ ♧ ♢ㅤ<a href= "https://bunnygambler.straw.page">𝓢TRAW</a>󠀠 ⸝⸝ <img width="20" height="20" alt="tumblr_4b6f508f9ee725e365a3bc0a8639b796_94bf25a2_75" src="https://github.com/user-attachments/assets/7a257257-5919-47ee-b886-ccb6d8757307" />
 
 
 <p align="center"> ₍꒰𓏼  𓈒ּ֯݁    C+H with me anytime ! / 5teen / he they strictly ꒱ྀ
