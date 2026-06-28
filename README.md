@@ -1,5 +1,11 @@
 <p align="center"> <img width="880" height="250" src="https://github.com/user-attachments/assets/e27861bd-6196-436a-949d-ea33d5dc9698" />
 
+
+ <div <p align="center">
+ 
+  ![](https://komarev.com/ghpvc/?username=gamblersi&label=Trickshots!&color=3A3A45&style=flat)
+
+
  </p>
 <img align="left" width="320" height="410" alt="image" src="https://github.com/user-attachments/assets/036abb2d-a619-44c5-9e37-e35ec2804865" /> 
 <p align="center"> <a href="https://jackpot.atabook.org/">
@@ -12,7 +18,7 @@
 
 
 <p align="center">               ‎                    ‎   ‎        ‎‎‎  ‎   ‎ ${\text{\color{#DDDECB}‎ ໃ ͝ 𓏼　 Mark , Clover ⏦ﾟ}}$  </p>
-<p align="center"> ‎ ‎  ‎                ‎         ‎      ‎       ‎  ‎  ‎ ‎  ‎  ‎  ‎  ${\text{\color{#F3F5CE} 　 ͜𓐇⑅ 5teen / C*h freely◟ `` ˖}}$       ‎   ‎     ‎   ‎   ‎       ‎     ‎      ‎     ‎     ‎  🍷   ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎    <img width="150" height="20" alt="tumblr_86d09f6b4a4d7918f010ff14864cd607_530dc3bf_250" src="https://github.com/user-attachments/assets/16619b78-3f18-44f5-9894-26383e1a5123" />
+<p align="center"> ‎ ‎  ‎                ‎         ‎      ‎       ‎  ‎  ‎ ‎  ‎  ‎  ‎  ${\text{\color{#F3F5CE} 　 ͜𓐇⑅ 5teen / C*h freely◟ `` ˖}}$       ‎   ‎     ‎   ‎   ‎       ‎     ‎      ‎     ‎     ‎  🍷   ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎  <img width="100" height="13" alt="tumblr_b4490c23b13a3767a6747bbf2641024b_2d121a2f_100" src="https://github.com/user-attachments/assets/598da5bf-60a7-4731-b097-aaa6c38b554e" />
  </p>
 
 <p align="center"> ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎     ‎  ‎  ${\text{\color{#C9C5AF}࣪  ˙  ౿. ꒷ "heads or tail?" 𝅄   ౨ৎ ㅤ۪ }}$ </p>
