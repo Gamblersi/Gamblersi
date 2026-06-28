@@ -1,41 +1,32 @@
+<p align="center"> <img width="880" height="250" src="https://github.com/user-attachments/assets/e27861bd-6196-436a-949d-ea33d5dc9698" />
+
+ </p>
+<img align="left" width="320" height="410" alt="image" src="https://github.com/user-attachments/assets/036abb2d-a619-44c5-9e37-e35ec2804865" /> 
+<p align="center"> <a href="https://jackpot.atabook.org/">
+ <img height="150" width="205"  alt="image" src="https://github.com/user-attachments/assets/cccd063e-8fa7-4bf0-84c7-8a6e295710a2" />  <a href="https://fluffle.cc/takeachance">     
+ <img height="150" width="205" src="https://github.com/user-attachments/assets/5c518569-c20d-4515-b4a1-0f02baa164ca" />
+ </p>
+ <p align="left">               ‎                    ‎   ‎        ‎‎‎  ‎  ‎    ‎     ‎  ‎    ‎      ‎   ‎    ‎‎   ‎ ‎   ‎     ‎   
+
+
+
+
+<p align="center">               ‎                    ‎   ‎        ‎‎‎  ‎   ‎ ${\text{\color{#DDDECB}‎ ໃ ͝ 𓏼　 Mark , Clover ⏦ﾟ}}$  </p>
+<p align="center"> ‎ ‎  ‎                ‎         ‎      ‎       ‎  ‎  ‎ ‎  ‎  ‎  ‎  ${\text{\color{#F3F5CE} 　 ͜𓐇⑅ 5teen / C*h freely◟ `` ˖}}$       ‎   ‎     ‎   ‎   ‎       ‎     ‎      ‎     ‎     ‎  🍷   ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎    <img width="150" height="20" alt="tumblr_86d09f6b4a4d7918f010ff14864cd607_530dc3bf_250" src="https://github.com/user-attachments/assets/16619b78-3f18-44f5-9894-26383e1a5123" />
+ </p>
+
+<p align="center"> ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎     ‎  ‎  ${\text{\color{#C9C5AF}࣪  ˙  ౿. ꒷ "heads or tail?" 𝅄   ౨ৎ ㅤ۪ }}$ </p>
+<p align="left">   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  </p> 
+
+
+<p align="center"> <img width="400" height="70" alt="image" src="https://github.com/user-attachments/assets/e300aa26-eabf-43de-ab68-ea73b026b413" />
+ </p>
+ ‎    ‎     ‎  
 <p align="center">
-<img height="50" width="500" src="https://readme-typing-svg.demolab.com?font=Lobster&size=30&pause=1000&color=000000&background=808080&center=true&vCenter=true&width=435&lines=Gamble+with+our+time;Because+chances+on+our+side" />
-</p>
-
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=gamblersi&color=636363&label=🎲"> </p>  <p align="center"> <img width="20" height="20" alt="tumblr_6905024411fc814c44bbc6eba03f53f7_c53baa35_75" src="https://github.com/user-attachments/assets/4e55b7e1-9fca-4627-8763-12d052bdd8fe" />
+ <ins>   ${\text{\color{#F2F5B0}use pc for better view !!}}$  </ins>
 
 
-<p align="center"> <img width="100" height="18" alt="tumblr_700ccfff3c648a56f0dfcc385cd44c9d_00c158a3_100" src="https://github.com/user-attachments/assets/c3845595-8e61-462b-99d4-d3ccda054ca8" />
 
 
-<p align="center"><img width="620" height="400" alt="14770" src="https://github.com/user-attachments/assets/8e1ff9e4-3ce5-4784-ba63-8eacbe69529e" />
-
-  
-<p align="center"> 
-𑣲 ⸝⸝ <a href= "https://jackpot.atabook.org/"> 𝓐TA </a>ㅤ♤ ♡ ♧ ♢ㅤ<a href= "https://fluffle.cc/takeachance">𝓕UFFLE.CC</a>ㅤ♤ ♡ ♧ ♢ㅤ<a href= "https://bunnygambler.straw.page">𝓢TRAW</a>󠀠 ⸝⸝ <img width="20" height="20" alt="tumblr_4b6f508f9ee725e365a3bc0a8639b796_94bf25a2_75" src="https://github.com/user-attachments/assets/7a257257-5919-47ee-b886-ccb6d8757307" />
-
-
-<p align="center"> ₍꒰𓏼  𓈒ּ֯݁    C+H with me anytime ! / 5teen / he they strictly ꒱ྀ
-<p align="center"> ₍  𓏼⠀ bmf i don't bite ay ? 🎲♟️ ♪｡
-<p align="center">  ᶻz﹒∿﹒﹒chance heavy kin!! (idm doubles) ﹒谷
-<p align="center"> <img width="40" height="40" alt="14804" src="https://github.com/user-attachments/assets/b21ec038-e582-480f-bff7-1ec971d1ddab" />
-
-
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3177ddkblmozlf6i35e2k4ues4ou&cover_image=true&theme=natemoo-re&show_offline=false&background_color=d4d4d4&interchange=false&profanity=true&hide_remaster=false&bar_color=e8e8e8&bar_color_cover=false">
-  </a>
-</p>
-
-
-<p align="center">
-<img width="99" height="56" alt="tumblr_6bec7c9199110b9ca50c6251c121a6c5_fe4d5e90_100" src="https://github.com/user-attachments/assets/e70819ac-6621-44b2-b6f6-ea1128e222d2" />
-<img width="99" height="56" alt="tumblr_5e6aef1becfffa5411d6f5ec5c71d515_1104c55e_100" src="https://github.com/user-attachments/assets/cf6976e3-6d76-4956-af06-0d3407339f53" />
-<img width="99" height="56" alt="tumblr_c2e58ee4cb65edf46a4269a80f839d22_0721ceec_100" src="https://github.com/user-attachments/assets/a527ebf7-7c5b-4a9c-81d0-d39cf187fd78" />
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/dcbaa27c-2a82-427a-8a91-d0c4c012c06f" />
-<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/08279b61-0496-492f-a038-57bf20952ae4" />
-
-<p align="center"> I'm known as chance biggest <a href= "https://github.com/fan-town"> fan </a>
-
-
-<p align="center"> <img width="620" height="298" alt="14769" src="https://github.com/user-attachments/assets/dbabf283-f952-4c05-be2c-4517b2100b46" />
+<p align="center"> <img width="900" height="200" alt="image" src="https://github.com/user-attachments/assets/80a60eea-58cb-4c33-b1a3-2e7b85408c37" />
+ </p>
