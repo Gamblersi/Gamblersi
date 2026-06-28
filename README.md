@@ -14,8 +14,9 @@
  </p>
 <img align="left" width="320" height="410" alt="image" src="https://github.com/user-attachments/assets/036abb2d-a619-44c5-9e37-e35ec2804865" /> 
 <p align="center"> <a href="https://jackpot.atabook.org/">
- <img height="150" width="205"  alt="image" src="https://github.com/user-attachments/assets/cccd063e-8fa7-4bf0-84c7-8a6e295710a2" />  <a href="https://fluffle.cc/takeachance">     
- <img height="150" width="205" src="https://github.com/user-attachments/assets/5c518569-c20d-4515-b4a1-0f02baa164ca" />
+ <img height="150" width="205"  alt="image" src="https://github.com/user-attachments/assets/3c97eb3c-3b8b-440b-b4a8-5c7c7cc00065" />
+ <a href="https://fluffle.cc/takeachance">     
+ <img height="150" width="205" src="https://github.com/user-attachments/assets/43a90570-6422-499a-b397-9ea4d7ed747c" />
  </p>
  <p align="left">               ‎                    ‎   ‎        ‎‎‎  ‎  ‎    ‎     ‎  ‎    ‎      ‎   ‎    ‎‎   ‎ ‎   ‎     ‎   
 
