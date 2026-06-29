@@ -24,7 +24,7 @@
 
 
 <p align="center">               ‎                    ‎   ‎        ‎‎‎  ‎   ‎ ${\text{\color{#DDDECB}‎ ໃ ͝ 𓏼　 Mark , Clover ⏦ﾟ}}$  </p>
-<p align="center"> ‎ ‎  ‎                ‎         ‎      ‎       ‎  ‎  ‎ ‎  ‎  ‎  ‎  ${\text{\color{#F3F5CE} 　 ͜𓐇⑅ 5teen / C*h freely / he,they strictly◟ `` ˖}}$       ‎   ‎     ‎   ‎   ‎       ‎     ‎      ‎     ‎     ‎  🍷   ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎  <img width="100" height="13" alt="tumblr_b4490c23b13a3767a6747bbf2641024b_2d121a2f_100" src="https://github.com/user-attachments/assets/598da5bf-60a7-4731-b097-aaa6c38b554e" />
+<p align="center"> ‎ ‎  ‎                ‎         ‎      ‎       ‎  ‎  ‎ ‎  ‎  ‎  ‎  ${\text{\color{#F3F5CE} 　 ͜𓐇⑅ 5teen / C*h freely ◟ `` ˖}}$       ‎   ‎     ‎   ‎   ‎       ‎     ‎      ‎     ‎     ‎  🍷   ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎  <img width="100" height="13" alt="tumblr_b4490c23b13a3767a6747bbf2641024b_2d121a2f_100" src="https://github.com/user-attachments/assets/598da5bf-60a7-4731-b097-aaa6c38b554e" />
  </p>
 
 <p align="center"> ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎     ‎  ‎  ${\text{\color{#C9C5AF}࣪  ˙  ౿. ꒷ "heads or tail?" 𝅄   ౨ৎ ㅤ۪ }}$ </p>
