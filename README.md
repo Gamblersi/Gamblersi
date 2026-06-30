@@ -59,10 +59,4 @@ https://pin.it/3PHzXit0s
 <img width="720" height="1600" alt="15706" src="https://github.com/user-attachments/assets/306e3203-01b7-478d-9fb3-efa88ce8b46b" />
 <img width="720" height="1600" alt="15705" src="https://github.com/user-attachments/assets/8e5d3cd0-522a-438e-ae5f-46dcea807b08" />
 
-retarded u cannot be serious LMAO
-
-<img width="1043" height="469" alt="image" src="https://github.com/user-attachments/assets/298064d1-d89a-4212-967f-75a4de18006f" />
-
-
-
 </p>
