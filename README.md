@@ -13,13 +13,14 @@
  
   ![](https://komarev.com/ghpvc/?username=gamblersi&label=Trickshots!&color=3A3A45&style=flat)
 
+<a href= "https://artfight.net/~bunigambler"> my art fight if u want to attack ! </a>
+
 <p align="center"> <img width="95" alt="image" src="https://github.com/user-attachments/assets/4e3e472d-ed0b-4a5e-b836-34c6ea91f4ed" /> 
 </p>
 
  </p>
 <img align="left" width="320" alt="image" src="https://github.com/user-attachments/assets/036abb2d-a619-44c5-9e37-e35ec2804865" /> 
 <p align="center"> <a href="https://jackpot.atabook.org/">
- 
  <img  width="205"  alt="image" src="https://github.com/user-attachments/assets/3c97eb3c-3b8b-440b-b4a8-5c7c7cc00065" />
  <a href="https://fluffle.cc/takeachance">     
  <img  width="205" src="https://github.com/user-attachments/assets/43a90570-6422-499a-b397-9ea4d7ed747c" />
