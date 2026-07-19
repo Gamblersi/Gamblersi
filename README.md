@@ -56,14 +56,3 @@
  </p>
 
 
-
-<p align="center">
-
-hi to spread awareness there was someone who was going around taking screenshots of people skins and posting them on Pinterest. no I did NOT give  permission . the first one is a gifted skin from a friend of mine and the second one is my own skin of me and my friend please mass report the account if u can! Ill remove this when my skins are removed complete I've reported them as well. 
-
-https://pin.it/3PHzXit0s
-
-<img width="720" height="1600" alt="15706" src="https://github.com/user-attachments/assets/306e3203-01b7-478d-9fb3-efa88ce8b46b" />
-<img width="720" height="1600" alt="15705" src="https://github.com/user-attachments/assets/8e5d3cd0-522a-438e-ae5f-46dcea807b08" />
-
-</p>
