@@ -1,6 +1,5 @@
 <div align="center">
 
-THIS IS LAZYILY MADE , remaking this when i have the motivation
 
   
  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Bona+Nova+SC&pause=1000&color=74383E&width=435&lines=I+MISS+THAT+KIND+OF+MISERYYYYY;THE+KIND+WHERE+YOU+WERE+NICE+TO+ME.)](https://git.io/typing-svg)
