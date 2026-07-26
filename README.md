@@ -16,8 +16,8 @@
 <p align="center"> <img width="400"  alt="image" src="https://github.com/user-attachments/assets/2f738896-a4c3-4aeb-907f-fcecffcd7721" />
 
 <p align="center"> 
-  ֺ۪⑅ㅤ<img width="35" alt="image" src="https://github.com/user-attachments/assets/ba034143-7b7c-4947-9d59-2d4d399fd2df"/> ㅤ <a href= "https://jackpot.atabook.org/"> ATA </a> ㅤ<img width="20" " alt="fb8555af" src="https://github.com/user-attachments/assets/32716302-85c5-41fe-9f16-4b6f4a6c244a" /> ㅤ<a href= "https://fluffle.cc/chance">FLUFFLE.CC </a>ㅤ <img width="35"  alt="image" src="https://github.com/user-attachments/assets/79931145-24b6-4763-a943-e0381a68ffa5" /> 󠀠󠀠󠁩𓂂۫๑𓏼
-
+ $\color{#f5817f}\textsf{ ິ ͜꒰　}$ <img width="35" alt="image" src="https://github.com/user-attachments/assets/ba034143-7b7c-4947-9d59-2d4d399fd2df"/> ㅤ <a href= "https://jackpot.atabook.org/"> ATA </a> ㅤ<img width="20" " alt="fb8555af" src="https://github.com/user-attachments/assets/32716302-85c5-41fe-9f16-4b6f4a6c244a" /> ㅤ<a href= "https://fluffle.cc/chance">FLUFFLE.CC </a>ㅤ <img width="35"  alt="image" src="https://github.com/user-attachments/assets/79931145-24b6-4763-a943-e0381a68ffa5" /> $\color{#f5817f}\textsf{𓂂۫๑𓏼 ㅤ}$
+  
  <p align="center"> ${\text{\color{#8f565c} hii call me mark or clover ! }}$
  <p align="center"> ${\text{\color{#c49197} he / they : 5teen , taken ! }}$
  <p align="center"> ${\text{\color{#74383e} c+h freely  }}$
