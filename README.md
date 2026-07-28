@@ -1,50 +1,56 @@
 <div align="center">
 
 
-  
- [![Typing SVG](https://readme-typing-svg.demolab.com?font=Bona+Nova+SC&pause=1000&color=74383E&width=435&lines=I+MISS+THAT+KIND+OF+MISERYYYYY;THE+KIND+WHERE+YOU+WERE+NICE+TO+ME.)](https://git.io/typing-svg)
-
-
 
  <div <p align="center">
   
- ![](https://komarev.com/ghpvc/?username=gamblersi&label=Trickshots!&color=74383e&style=flat)
+ ![](https://komarev.com/ghpvc/?username=gamblersi&label=TRICKSHOTS!&color=73666C&style=flat)
 
 
-<p align="center"> <img width="270"  alt="image" src="https://github.com/user-attachments/assets/74ba66f4-e64f-40e3-89d9-7148b1a85519" />
+<p align="center"> <img width="270" alt="chance" src="https://github.com/user-attachments/assets/9aa71a9c-69f8-4c72-85b4-af976e7d2e20" />
 
-<p align="center"> <img width="400"  alt="image" src="https://github.com/user-attachments/assets/2f738896-a4c3-4aeb-907f-fcecffcd7721" />
+
+
+<p align="center"> <img width="400"  alt="image" src="https://github.com/user-attachments/assets/949632aa-7e4c-4261-aae5-09f4d582af6c" />
+
+
+
+ <p align="center"> ${\text{\color{#f4f2ee} 𓍢 ㅤ　 𝗰l𝗈υe𝓻 　 ｡ ᨳ。𓏼ㅤ 𝗺α𝚛𝕜ㅤ ⑅𓐇 }}$
+ <p align="center"> ${\text{\color{#d3cfce}  ♪۪۪⠀ㅤⓗ𝕖 / 𝓽ჩᥱyㅤㅤ𓋭   ࣪ ㅤ t̲𝒶kᥱn ♡𓏼 }}$
+ <p align="center"> ${\text{\color{#aeadac} ✦ ࣪ ⠀⠀c+h 𝖿r𝑒elყ 𓈒  }}$
 
 <p align="center"> 
- $\color{#f5817f}\textsf{ ິ ͜꒰　}$ <img width="35" alt="image" src="https://github.com/user-attachments/assets/ba034143-7b7c-4947-9d59-2d4d399fd2df"/> ㅤ <a href= "https://jackpot.atabook.org/"> ATA </a> ㅤ<img width="20" " alt="fb8555af" src="https://github.com/user-attachments/assets/32716302-85c5-41fe-9f16-4b6f4a6c244a" /> ㅤ<a href= "https://fluffle.cc/chance">FLUFFLE.CC </a>ㅤ <img width="35"  alt="image" src="https://github.com/user-attachments/assets/79931145-24b6-4763-a943-e0381a68ffa5" /> $\color{#f5817f}\textsf{𓂂۫๑𓏼 ㅤ}$
+ㅤㅤ $\color{#6e6268}\textsf{ ິ ͜꒰　}$ <img width="35" alt="chance" src="https://github.com/user-attachments/assets/c15b0828-450a-4a46-a136-01faa3c6d749" />ㅤ <a href= "https://jackpot.atabook.org/"> ATA </a> ㅤ<img width="20" " alt="fb8555af" src="https://github.com/user-attachments/assets/32716302-85c5-41fe-9f16-4b6f4a6c244a" /> ㅤ<a href= "https://fluffle.cc/chance">FLUFFLE.CC </a>ㅤ <img width="35"  alt="chance"src="https://github.com/user-attachments/assets/215d51a6-819e-4cde-b120-df6cd7cc8217" /> $\color{#6e6268}\textsf{𓂂۫๑𓏼 ㅤ}$
   
- <p align="center"> ${\text{\color{#8f565c} hii call me mark or clover ! }}$
- <p align="center"> ${\text{\color{#c49197} he / they : 5teen , taken ! }}$
- <p align="center"> ${\text{\color{#74383e} c+h freely  }}$
-  
- <p align="center"> <img width="400"  alt="image" src="https://github.com/user-attachments/assets/7ff96e11-45a8-49a9-94ec-9f3ec43d414b" />
 
- <p align="center"> ${\text{\color{#d0bdac} this is me and my partner aw  }}$
   
- <p align="center"> ${\text{\color{#894f55} sign ata for yaoi  }}$
+ㅤㅤ <p align="center"> <img width="400"  alt="mafioso and chance" src="https://github.com/user-attachments/assets/ab170fdd-9400-4d20-86fa-c01584d5c836" />
+
+
+ <p align="center"> ${\text{\color{#ccc7c8} ིྀˌ͙　　ოe ᨡnd ოy  b̲f̲　　⑅ ݁  }}$
+  
+ <p align="center"> ${\text{\color{#6c5f65} ⏔    sign αtα for ყαoi 　 ֺ ͜͜ ݃ ྀི꒱ྀ  }}$
  
   
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3177ddkblmozlf6i35e2k4ues4ou&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=74383e&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3177ddkblmozlf6i35e2k4ues4ou&cover_image=true&theme=novatorem&show_offline=false&background_color=ffffff&interchange=false&profanity=false&hide_remaster=false&bar_color=ffffff&bar_color_cover=false">
   </a>
 </p>
 
-<p align="center">  <img width="400"  alt="image" src="https://github.com/user-attachments/assets/efca9799-036e-4688-ab36-7822a5869bd1" />
+${\text{\color{#8e8186}  »»————- ★ ————-«« }}$
 
 <p align="center"> <a href="https://github.com/fan-town"> <img width="458"  alt="image" src="https://github.com/user-attachments/assets/c7575fb5-b008-46e3-b919-a02ee639a46c" />
  
 <p align="center"> <p align="center"> <a href="https://github.com/title-town">
 <img width="400"  alt="image" src="https://github.com/user-attachments/assets/cb28b049-5b08-49ee-a223-d2f236f9ec99" />
+
  
-${\text{\color{#91595f}  happy to be known as chance of pony town aw }}$
+${\text{\color{#675b60} ◜　 ॱ𓏽　 happy to be known as chance of pony town aw 𓈒꒱꒱ }}$
 
-<p align="center">  <img width="300"  alt="image" src="https://github.com/user-attachments/assets/ec02fcc0-f1a2-4b69-a680-93f6efb549a4" />
+<p align="center">  <img width="250"  alt="me" src="https://github.com/user-attachments/assets/4fb2c01f-a9bd-4075-bcee-ce396d9a8884" />
 
+
+<p align="center"> <img width="400" alt="image" src="https://github.com/user-attachments/assets/c64c5012-49f5-4990-aabe-d2de60d0d0fa" />
 
 
