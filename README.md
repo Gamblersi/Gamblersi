@@ -40,7 +40,10 @@
 
 ${\text{\color{#8e8186}  »»————- ★ ————-«« }}$
 
-<p align="center"> <a href="https://github.com/fan-town"> <img width="458"  alt="image" src="https://github.com/user-attachments/assets/c7575fb5-b008-46e3-b919-a02ee639a46c" />
+<p align="center"> <a href="https://github.com/fans-town"> <img width="458"  alt="image" src="https://github.com/user-attachments/assets/d448be8f-8547-4ec6-a600-16de23021286" />
+
+
+
  
 <p align="center"> <p align="center"> <a href="https://github.com/title-town">
 <img width="400"  alt="image" src="https://github.com/user-attachments/assets/cb28b049-5b08-49ee-a223-d2f236f9ec99" />
