@@ -53,7 +53,7 @@ ${\text{\color{#675b60} ◜　 ॱ𓏽　 happy to be known as chance of pony to
 
 <p align="center">  <img width="250"  alt="me" src="https://github.com/user-attachments/assets/4fb2c01f-a9bd-4075-bcee-ce396d9a8884" />
 
-${\text{\color{#675b60} FOREVER 1# DIGNITY (roblox) YUMSHIPPPERR }}$
+${\text{\color{#675b60} FOREVER DIGNITY (roblox) YUMSHIPPPERR }}$
 
 <p align="center"> <p align="center"> <a href="https://github.com/ponytownyumeshippers"> <img width="426" height="70" alt="17890" src="https://github.com/user-attachments/assets/e04c1aee-a1e1-4fce-a214-36ad72633dba" />
 
