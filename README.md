@@ -40,24 +40,11 @@
 
 ${\text{\color{#8e8186}  »»————- ★ ————-«« }}$
 
-<p align="center"> <a href="https://github.com/fans-town"> <img width="458"  alt="image" src="https://github.com/user-attachments/assets/d448be8f-8547-4ec6-a600-16de23021286" />
+<a href="https://github.com/ponytown-nominations"> ponytown-nominations </a> , <a href="https://github.com/title-town"> title-town </a> , <a href="https://github.com/fans-town"> fans-town </a> 
 
-
-
- 
-<p align="center"> <p align="center"> <a href="https://github.com/title-town">
-<img width="400"  alt="image" src="https://github.com/user-attachments/assets/cb28b049-5b08-49ee-a223-d2f236f9ec99" />
-
- 
 ${\text{\color{#675b60} ◜　 ॱ𓏽　 happy to be known as chance of pony town aw 𓈒꒱꒱ }}$
 
 <p align="center">  <img width="250"  alt="me" src="https://github.com/user-attachments/assets/4fb2c01f-a9bd-4075-bcee-ce396d9a8884" />
-
-${\text{\color{#675b60} FOREVER DIGNITY (roblox) YUMSHIPPPERR }}$
-
-<p align="center"> <p align="center"> <a href="https://github.com/ponytownyumeshippers"> <img width="426" height="70" alt="17890" src="https://github.com/user-attachments/assets/e04c1aee-a1e1-4fce-a214-36ad72633dba" />
-
-
 
 <p align="center"> <img width="400" alt="image" src="https://github.com/user-attachments/assets/c64c5012-49f5-4990-aabe-d2de60d0d0fa" />
 
