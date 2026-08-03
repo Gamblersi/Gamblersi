@@ -3,8 +3,16 @@
 
 
  <div <p align="center">
+
+
+ 
   
  ![](https://komarev.com/ghpvc/?username=gamblersi&label=TRICKSHOTS!&color=73666C&style=flat)
+
+
+<a href="https://github.com/pt-walk-of-fame"> <img width="210"  alt="well known star" src="https://github.com/user-attachments/assets/d80bbf8c-fe2d-41a1-bcf9-4fb9e4aa4967" />
+
+
 
 
 <p align="center"> <img width="270" alt="chance" src="https://github.com/user-attachments/assets/9aa71a9c-69f8-4c72-85b4-af976e7d2e20" />
