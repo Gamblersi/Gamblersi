@@ -5,7 +5,7 @@
 <img width="498" height="212" alt="ezgif-821282a6e21e91d1" src="https://github.com/user-attachments/assets/a392f25b-6c07-4b27-955c-991ffb7435f5" />
 
 ohhh u want to be the chance of pt so badddd , ohhh u want these titles sooo badddd ohhhhh you know who u areee 
-there is no point in shit talking behind my back btw and the audacity to straight up just start false accusing lmaoo this is just sad the fact im a coping link sooo likeee LMAOOO
+there is no point in shit talking behind my back btw and the audacity to straight up just start false accusing lmaoo this is just sad
 
 
 
