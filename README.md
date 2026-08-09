@@ -1,6 +1,6 @@
 <div align="center">
 
-just a heads up, me being in so many titles isn't a big deal btw. just because u didn't get to be putted as the character of pt doesn't mean u get to talk shit about me or Make false accusations of me? it's horse game it's not the end of the world these titles were made for fun 
+just a heads up, me being in so many titles isn't a big deal btw. just because u didn't get to be putted as the character of pt doesn't mean u get to talk shit about me or Make false accusations of me? it's horse game it's not the end of the world, these titles were made for fun 
 
 
  <div <p align="center">
