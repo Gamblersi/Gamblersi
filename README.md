@@ -29,7 +29,7 @@ just a heads up, me being in so many titles isn't a big deal btw. just because u
  <p align="center"> ${\text{\color{#aeadac} ✦ ࣪ ⠀⠀c+h 𝖿r𝑒elყ 𓈒  }}$
 
 <p align="center"> 
-ㅤㅤ $\color{#6e6268}\textsf{ ິ ͜꒰　}$ <img width="35" alt="chance" src="https://github.com/user-attachments/assets/c15b0828-450a-4a46-a136-01faa3c6d749" />ㅤ <a href= "https://jackpot.atabook.org/"> ATA </a> ㅤ<img width="20" " alt="fb8555af" src="https://github.com/user-attachments/assets/32716302-85c5-41fe-9f16-4b6f4a6c244a" /> ㅤ<a href= "https://rentry.co/chancy">RENTRY </a>ㅤ <img width="35"  alt="chance"src="https://github.com/user-attachments/assets/215d51a6-819e-4cde-b120-df6cd7cc8217" /> $\color{#6e6268}\textsf{𓂂۫๑𓏼 ㅤ}$
+ㅤㅤ $\color{#6e6268}\textsf{ ິ ͜꒰　}$ <img width="35" alt="chance" src="https://github.com/user-attachments/assets/c15b0828-450a-4a46-a136-01faa3c6d749" />ㅤ <a href= "https://jackpot.atabook.org/"> ATA </a> ㅤ<img width="20" " alt="fb8555af" src="https://github.com/user-attachments/assets/32716302-85c5-41fe-9f16-4b6f4a6c244a" /> ㅤ<a href= " https://fluffle.cc/chance"> FLUFFLE.CC </a>ㅤ <img width="35"  alt="chance"src="https://github.com/user-attachments/assets/215d51a6-819e-4cde-b120-df6cd7cc8217" /> $\color{#6e6268}\textsf{𓂂۫๑𓏼 ㅤ}$
   
 
   
