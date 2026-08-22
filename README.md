@@ -10,6 +10,7 @@
  ![](https://komarev.com/ghpvc/?username=gamblersi&label=TRICKSHOTS!&color=73666C&style=flat)
 
  everything going to be remade soon ! 
+ I'm the real chance btw 
 
 
 <img width="400" alt="image" src="https://github.com/user-attachments/assets/c6c9c082-bf36-4ef9-8475-ff45e3a1952a" />
