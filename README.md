@@ -14,8 +14,7 @@
  I'm the real chance btw 
 
 
-<img width="400" alt="image" src="https://github.com/user-attachments/assets/c6c9c082-bf36-4ef9-8475-ff45e3a1952a" />
-
+<img width="490" alt="chance" src="https://github.com/user-attachments/assets/549dc2b8-d7e2-4100-9ea4-8b0f94886e6b" />
 
 
 
