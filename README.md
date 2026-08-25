@@ -7,7 +7,7 @@
 
  
   
- ![](https://komarev.com/ghpvc/?username=gamblersi&label=TRICKSHOTS!&color=73666C&style=flat)
+ ![](https://komarev.com/ghpvc/?username=gamblersi&label=TRICKSHOTS!&color=454545&style=flat)
 
  everything going to be remade soon ! 
  
@@ -19,7 +19,7 @@
 
 
 <p align="center"> 
-ㅤ <a href= "https://jackpot.atabook.org/"> ATA </a> ㅤ<img width="20" " alt="fb8555af" src="https://github.com/user-attachments/assets/32716302-85c5-41fe-9f16-4b6f4a6c244a" /> ㅤ<a href= "https://fluffle.cc/chance"> FLUFFLE.CC </a>
+ㅤ <a href= "https://jackpot.atabook.org/"> ATA </a>ㅤ <img width="44" alt="angel" src="https://github.com/user-attachments/assets/2152b629-f904-439d-b0a8-5647b6df4572" /> ㅤ<a href= "https://fluffle.cc/chance"> FLUFFLE.CC </a>
   
 
   
