@@ -13,7 +13,7 @@
  
  I'm the real chance btw 
 
- PFP BY MY BROTHER THANK U DYO!! THAT'S LITERALLY ME
+ PFP BY MY OOMF THANK U CANDY!! THAT'S LITERALLY ME
 
 
 <img width="490" alt="chance" src="https://github.com/user-attachments/assets/549dc2b8-d7e2-4100-9ea4-8b0f94886e6b" />
