@@ -13,7 +13,7 @@
  
  I'm the real chance btw 
 
- don't be parasocial with me just because I'm in many titles
+ PFP DRAWING BY ZACH AAAAA THANK U ZACH THANK U MA GOAT AHHHHAJJHHHHH I LOVE THIS THAT'S LITERALLY ME THAT'S ME 
 
 
 <img width="490" alt="chance" src="https://github.com/user-attachments/assets/549dc2b8-d7e2-4100-9ea4-8b0f94886e6b" />
