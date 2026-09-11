@@ -1,6 +1,8 @@
 <div align="center">
   
-I wish everyone the best you are loved ♡ - chance 
+I wish everyone the best you are loved ♡ 
+
+happy suicide prevention month! - chance
   
 <p align="center"> <img width="600" alt="8846" src="https://github.com/user-attachments/assets/38c2cf22-33fc-4f85-ada0-ab33631a05d6" />
   
