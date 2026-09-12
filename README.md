@@ -4,7 +4,7 @@ I wish everyone the best you are loved ♡
 
 happy suicide prevention month! - chance
   
-<p align="center"> <img width="600" alt="8846" src="https://github.com/user-attachments/assets/38c2cf22-33fc-4f85-ada0-ab33631a05d6" />
+<img width="600"  src="https://github.com/user-attachments/assets/05faecde-6688-43ae-a2df-b41ef2123035" />
   
 <p align="center"> 
 ㅤ <a href= "https://jackpot.atabook.org/"> ATA </a>ㅤ <img width="44" alt="angel" src="https://github.com/user-attachments/assets/2152b629-f904-439d-b0a8-5647b6df4572" /> ㅤ<a href= "https://fluffle.cc/chance"> FLUFFLE.CC </a>
