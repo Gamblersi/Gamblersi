@@ -25,7 +25,7 @@ happy suicide prevention month! - chance
 <details closed>
   <summary> ${{\color{#E5E5E5} attention }}$</summary>
 
-  Ill remake this soon once I have motivation I'm feeling horrible lately and chances of not surviving or making it alive plus I'm going to be semi active on pony town because of school thank u for understanding I wish everyone best luck with everything
+  Ill remake this soon once I have motivation I'm feeling horrible lately and chances of not surviving or making it alive plus I'm going to be semi active on pony town because of high school thank u for understanding I wish everyone best luck with everything
  </a>
 </details>
 
