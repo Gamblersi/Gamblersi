@@ -1,4 +1,7 @@
 <div align="center">
+
+![](https://komarev.com/ghpvc/?username=gamblersi&color=604A31&label=jackpots!)
+
   
 I wish everyone the best you are loved ♡ 
 
@@ -24,3 +27,6 @@ happy suicide prevention month! - chance
 
   Ill remake this soon once I have motivation I'm feeling horrible lately and chances of not surviving or making it alive plus I'm going to be semi active on pony town because of school thank u for understanding I wish everyone best luck with everything
  </a>
+</details>
+
+<img width="200" src="https://github.com/user-attachments/assets/1e57345a-856b-46b2-8eb5-a57d1957ff63" />
