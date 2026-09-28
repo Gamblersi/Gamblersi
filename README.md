@@ -47,7 +47,7 @@ $\color{#93D3C2}\textsf {ꗯ𓈒˙ ׁ𓏼　Taken by my muffin　♡  ִ⑅  ˚ 
 <img width="40" alt="card" src="https://github.com/user-attachments/assets/b6b8c8b2-0892-4940-a9fb-ca7eaf820654" />
 <details closed>
   <summary> ${{\color{#4AA687}  🕶️ }}$</summary>
- hii some info about me u can call me chance , clover or mark! im a coping link of chance and a fullfic, I'm transmasc I use he/they but I don't mind feminine pronounce! please stop copying my things and whining about me being in many titles lol, I'm busy with high school lately so I'm not active that much on pt!! I love my bunny hi fifi 🗡🎲
+ hii some info about me u can call me chance , clover or mark! im a coping link of chance and a fullfic, I'm transmasc I use he/they but I don't mind feminine pronounce! but please do not use she/her on me friends only can use that please stop copying my things and whining about me being in many titles lol, I'm busy with high school lately so I'm not active that much on pt!! I love my bunny hi fifi 🗡🎲
 </details>
 
  <a href="https://pronouns.cc/@JACKPOT" />
