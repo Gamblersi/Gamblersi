@@ -1,4 +1,4 @@
-<img align="left" width="490" alt="chance" src="https://github.com/user-attachments/assets/b7eceabe-55e8-436d-8983-1bd20e65de9c" />
+<img align="left" width="380" alt="chance" src="https://github.com/user-attachments/assets/b7eceabe-55e8-436d-8983-1bd20e65de9c" />
 
    <div align="center"> 
    
