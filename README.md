@@ -1,11 +1,15 @@
-<img align="left" width="490" alt="chance" src="https://github.com/user-attachments/assets/b7eceabe-55e8-436d-8983-1bd20e65de9c" />
-
-   <div align="center"> 
+<div align="center"> 
    
    ![](https://komarev.com/ghpvc/?username=gamblersi&color=AFA7B6&label=jackpots!)
 
-   <a href="https://github.com/pt-of-forsaken"> chance of ponytown! </a>
+   <img width="26" alt="angel" src="https://github.com/user-attachments/assets/67be3ba3-c987-4ba1-8b87-9c7806933c4f" /><a href="https://github.com/pt-of-forsaken"> chance of ponytown! </a><img width="26" alt="angel" src="https://github.com/user-attachments/assets/01d3bd7d-0ae3-4ac9-95f4-660c5b653394" />
 
+
+
+<img align="left" width="490" alt="chance" src="https://github.com/user-attachments/assets/b7eceabe-55e8-436d-8983-1bd20e65de9c" />
+
+
+   
 
 <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Isometra&duration=1200&pause=900&color=FCF2E8&center=true&vCenter=true&lines=&width=435&height=80&lines=%22+begins+with+c+ends+with+e?%22;%20+chance!%20;%20+chance!!%20;%20+CHANCE!!!%20;%22+haters?+squashed+immediately!%22;%20+chance!%20;%20+chance!!%20;%20+CHANCE!!!%20"alt="Typing SVG" /></a>
 
@@ -17,8 +21,8 @@
 <div align="center"> 
  
 <a href="https://jackpot.atabook.org/" />
-   <img src="https://github.com/user-attachments/assets/771195d5-c575-415e-ac3a-a5629a5d9bff" alt="ata" width="20%"/> </a><a href="https://fluffle.cc/chance" />
-   <img src="https://github.com/user-attachments/assets/51c45e0b-7904-4bf4-8fb0-604618b595e5" alt="fluffle.cc" width="20%"/>
+   <img src="https://github.com/user-attachments/assets/771195d5-c575-415e-ac3a-a5629a5d9bff" alt="ata" width="30%"/> </a><a href="https://fluffle.cc/chance" />
+   <img src="https://github.com/user-attachments/assets/51c45e0b-7904-4bf4-8fb0-604618b595e5" alt="fluffle.cc" width="30%"/>
 </a>
 
 
