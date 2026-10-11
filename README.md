@@ -41,3 +41,10 @@
 
 <img width="400" alt="chance" src="https://github.com/user-attachments/assets/283f2f58-68ac-4c1a-90b6-359e83cdc126" />
 
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3177ddkblmozlf6i35e2k4ues4ou&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=6F6F91&bar_color_cover=false">
+  </a>
+</p>
+
