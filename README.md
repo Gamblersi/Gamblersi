@@ -9,12 +9,12 @@
 
 
 
-<img align="left" width="490" alt="chance" src="https://github.com/user-attachments/assets/b7eceabe-55e8-436d-8983-1bd20e65de9c" />
+<img align="left" width="350" alt="chance" src="https://github.com/user-attachments/assets/b7eceabe-55e8-436d-8983-1bd20e65de9c" />
 
 
    
 
-
+<div align="center"> 
 
   $\color{#AFA7B6}\textsf {゛ ᴄhᥲᥒce}$ $\color{#C7ACB3}\textsf {ou}$ $\color{#D6D1D7}\textsf {Cl᥆ѵᥱɾ 사    ﹒♡}$ $\color{#FCF2E8}\textsf {taken}$ <img width="20" alt="letter" src="https://github.com/user-attachments/assets/99ce9cd2-8359-4037-b150-51c86f401a02" />
 
@@ -40,7 +40,7 @@
    howdy lad! you can call me chance or clover aight' I'm transmasc ♡ I strictly use he/they but I don't mind feminine pronounce only friends are allowed to use she/her around me tho! I am a heavy kin of chance and a c'link, do not copy my skins ' inspo are okay just not everything. happily taken by my maf ♡ 06 14 26
 </details>
 
-<img width="400" alt="chance" src="https://github.com/user-attachments/assets/283f2f58-68ac-4c1a-90b6-359e83cdc126" />
+<img width="350" alt="chance" src="https://github.com/user-attachments/assets/283f2f58-68ac-4c1a-90b6-359e83cdc126" />
 
 
 <p align="center">
