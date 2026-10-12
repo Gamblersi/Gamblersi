@@ -43,7 +43,7 @@
    howdy lad! you can call me chance or clover aight' I'm transmasc ♡ I strictly use he/they but I don't mind feminine pronounce only friends are allowed to use she/her around me tho! I am a heavy kin of chance , c'link and fullfic as well , do not copy my skins ' inspo are okay just not everything. happily taken by my maf ♡ 06 14 26
 </details>
 
-<img width="350" alt="chance" src="https://github.com/user-attachments/assets/283f2f58-68ac-4c1a-90b6-359e83cdc126" />
+<img width="320" alt="chance" src="https://github.com/user-attachments/assets/283f2f58-68ac-4c1a-90b6-359e83cdc126" />
 
 
 <p align="center">
