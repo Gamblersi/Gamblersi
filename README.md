@@ -5,7 +5,7 @@
 
 
 
-   <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Isometra&duration=1200&pause=900&color=FCF2E8&center=true&vCenter=true&lines=&width=435&height=80&lines=%22+begins+with+c+ends+with+e?%22;%20+chance!%20;%20+chance!!%20;%20+CHANCE!!!%20;%22+haters?+squashed+immediately!%22;%20+chance!%20;%20+chance!!%20;%20+CHANCE!!!%20"alt="Typing SVG" /></a>
+   <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Isometra&duration=750&pause=1000&color=FCF2E8&center=true&width=435&lines=%22Begins+with+c+ends+with+e%3F%22;%22Chance!%22;%22Chance!!%22;%22CHANCE!!!%22;%22Haters%3F+Squashed+immediately!%22;%22Chance!%22;%22Chance!!%22;%22Chance!!!%22" alt="Typing SVG" /></a>
 
 
    <img width="26" alt="angel" src="https://github.com/user-attachments/assets/67be3ba3-c987-4ba1-8b87-9c7806933c4f" /><a href="https://github.com/pt-of-forsaken"> chance of ponytown! </a><img width="26" alt="angel" src="https://github.com/user-attachments/assets/01d3bd7d-0ae3-4ac9-95f4-660c5b653394" />
