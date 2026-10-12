@@ -12,7 +12,7 @@
 
 
 
-<img align="left" width="350" alt="chance" src="https://github.com/user-attachments/assets/b7eceabe-55e8-436d-8983-1bd20e65de9c" />
+<img align="left" width="390" alt="chance" src="https://github.com/user-attachments/assets/b7eceabe-55e8-436d-8983-1bd20e65de9c" />
 
 
    
