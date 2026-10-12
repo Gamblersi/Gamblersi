@@ -1,6 +1,9 @@
 <div align="center"> 
    
-   ![](https://komarev.com/ghpvc/?username=gamblersi&color=AFA7B6&label=jackpots!)
+   ![chance](https://hits.sh/github.com/Gamblersi.svg?label=♤+JACKPOTS&extraCount=2&color=AFA7B6&labelColor=6F6F91)
+
+
+
 
    <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Isometra&duration=1200&pause=900&color=FCF2E8&center=true&vCenter=true&lines=&width=435&height=80&lines=%22+begins+with+c+ends+with+e?%22;%20+chance!%20;%20+chance!!%20;%20+CHANCE!!!%20;%22+haters?+squashed+immediately!%22;%20+chance!%20;%20+chance!!%20;%20+CHANCE!!!%20"alt="Typing SVG" /></a>
 
