@@ -2,6 +2,9 @@
    
    ![](https://komarev.com/ghpvc/?username=gamblersi&color=AFA7B6&label=jackpots!)
 
+   <p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Isometra&duration=1200&pause=900&color=FCF2E8&center=true&vCenter=true&lines=&width=435&height=80&lines=%22+begins+with+c+ends+with+e?%22;%20+chance!%20;%20+chance!!%20;%20+CHANCE!!!%20;%22+haters?+squashed+immediately!%22;%20+chance!%20;%20+chance!!%20;%20+CHANCE!!!%20"alt="Typing SVG" /></a>
+
+
    <img width="26" alt="angel" src="https://github.com/user-attachments/assets/67be3ba3-c987-4ba1-8b87-9c7806933c4f" /><a href="https://github.com/pt-of-forsaken"> chance of ponytown! </a><img width="26" alt="angel" src="https://github.com/user-attachments/assets/01d3bd7d-0ae3-4ac9-95f4-660c5b653394" />
 
 
@@ -11,7 +14,6 @@
 
    
 
-<p align="center"><a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Isometra&duration=1200&pause=900&color=FCF2E8&center=true&vCenter=true&lines=&width=435&height=80&lines=%22+begins+with+c+ends+with+e?%22;%20+chance!%20;%20+chance!!%20;%20+CHANCE!!!%20;%22+haters?+squashed+immediately!%22;%20+chance!%20;%20+chance!!%20;%20+CHANCE!!!%20"alt="Typing SVG" /></a>
 
 
   $\color{#AFA7B6}\textsf {゛ ᴄhᥲᥒce}$ $\color{#C7ACB3}\textsf {ou}$ $\color{#D6D1D7}\textsf {Cl᥆ѵᥱɾ 사    ﹒♡}$ $\color{#FCF2E8}\textsf {taken}$ <img width="20" alt="letter" src="https://github.com/user-attachments/assets/99ce9cd2-8359-4037-b150-51c86f401a02" />
