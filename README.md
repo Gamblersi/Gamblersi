@@ -19,7 +19,7 @@
 
 <div align="center"> 
 
-  $\color{#AFA7B6}\textsf {゛ ᴄhᥲᥒce}$ $\color{#C7ACB3}\textsf {ou}$ $\color{#D6D1D7}\textsf {Cl᥆ѵᥱɾ 사    ﹒♡}$ $\color{#FCF2E8}\textsf {taken}$ <img width="20" alt="letter" src="https://github.com/user-attachments/assets/99ce9cd2-8359-4037-b150-51c86f401a02" />
+  $\color{#AFA7B6}\textsf {゛ ᴄhᥲᥒce}$ $\color{#C7ACB3}\textsf {ou}$ $\color{#D6D1D7}\textsf {Cl᥆ѵᥱɾ 사    ﹒♡}$ <img width="20" alt="letter" src="https://github.com/user-attachments/assets/99ce9cd2-8359-4037-b150-51c86f401a02" />
 
 
 
