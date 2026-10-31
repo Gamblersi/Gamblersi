@@ -1,54 +1,49 @@
-<div align="center"> 
-   
-   ![chance](https://hits.sh/github.com/Gamblersi.svg?label=♤+JACKPOTS&extraCount=2&color=AFA7B6&labelColor=6F6F91)
+<p align="center"> <img width="880" height="250" src="https://github.com/user-attachments/assets/e27861bd-6196-436a-949d-ea33d5dc9698" />
 
 
-
-
-   <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Isometra&duration=750&pause=1000&color=FCF2E8&center=true&width=435&lines=%22Begins+with+c+ends+with+e%3F%22;%22Chance!%22;%22Chance!!%22;%22CHANCE!!!%22;%22Haters%3F+Squashed+immediately!%22;%22Chance!%22;%22Chance!!%22;%22CHANCE!!!%22" alt="Typing SVG" /></a>
-
-
-   <img width="26" alt="angel" src="https://github.com/user-attachments/assets/67be3ba3-c987-4ba1-8b87-9c7806933c4f" /><a href="https://github.com/pt-of-forsaken"> chance of ponytown! </a><img width="26" alt="angel" src="https://github.com/user-attachments/assets/01d3bd7d-0ae3-4ac9-95f4-660c5b653394" />
-
-
-
-<img align="left" width="390" alt="chance" src="https://github.com/user-attachments/assets/b7eceabe-55e8-436d-8983-1bd20e65de9c" />
-
-
-   
-
-<div align="center"> 
-
-  $\color{#AFA7B6}\textsf {゛ ᴄhᥲᥒce}$ $\color{#C7ACB3}\textsf {ou}$ $\color{#D6D1D7}\textsf {Cl᥆ѵᥱɾ 사    ﹒♡}$ <img width="20" alt="letter" src="https://github.com/user-attachments/assets/99ce9cd2-8359-4037-b150-51c86f401a02" />
-
-
-
-<div align="center"> 
+ <div <p align="center">
  
-<a href="https://jackpot.atabook.org/" />
-   <img src="https://github.com/user-attachments/assets/771195d5-c575-415e-ac3a-a5629a5d9bff" alt="ata" width="20%"/> </a><a href="https://fluffle.cc/chance" />
-   <img src="https://github.com/user-attachments/assets/51c45e0b-7904-4bf4-8fb0-604618b595e5" alt="fluffle.cc" width="20%"/>
-</a>
+  ![](https://komarev.com/ghpvc/?username=gamblersi&label=Trickshots!&color=3A3A45&style=flat)
 
 
-<details closed>
-  <summary> ${{\color{#6F6F91} TITLES ♤ }}$</summary>
-   <a href="https://github.com/casinotown"> casinotown </a> , <a href="https://github.com/pt-walk-of-fame"> pt-walk-of-fame </a> , <a href="https://github.com/pt-icon"> pt-icon </a> , <a href="https://github.com/pt-of-awesomeness"> pt-of-awesomeness </a> , <a href="https://github.com/pt-nominations"> pt-nominations </a> , <a href="https://github.com/pt-hall-of-media"> pt-hall-of-media </a> , <a href="https://github.com/ponytown-nominations"> ponytown-nominations </a> , <a href="https://github.com/title-town"> title-town </a> , <a href="https://github.com/fans-town"> fans-town </a> , <a href="https://github.com/ponychievements"> ponychievements </a> , <a href="https://github.com/charactersofpt"> charactersofpt </a> , <a href="https://github.com/FOLKTOWN"> FOLKTOWN </a> , 
-<a href="https://github.com/pt-fashion"> pt-fashion </a> , <a href="https://github.com/style-town"> style-town </a> , me and my twin -> <a href="https://github.com/pt-friendships"> pt-friendships </a> ♡ , <a href="https://github.com/pt-loveforfictional"> pt-loveforfictional </a> , <a href="https://github.com/ship-town"> ship-town </a> , <a href="https://github.com/cosplaytown"> cosplaytown </a> , <a href="https://github.com/pt-heavyfictkin"> heavyfictkin </a> , <a href="https://github.com/Ponytowns-rewards"> ponytowns-rewards </a> , <a href="https://github.com/choco-town"> choco-town </a> , <a href="https://github.com/music-town"> music-town </a> , <a href="https://github.com/kaotown"> kaotown </a>
-</details>
 
-<details closed>
-  <summary> ${{\color{#AFA7B6}  ABOUT ME ♧ }}$</summary>
- 
-   howdy lad! you can call me chance or clover aight' I'm transmasc ♡ I strictly use he/they but I don't mind feminine pronounce only friends are allowed to use she/her around me tho! I am a heavy kin of chance , c'link and fullfic as well , do not copy my skins ' inspo are okay just not everything.
-</details>
-
-<img width="320" alt="chance" src="https://github.com/user-attachments/assets/283f2f58-68ac-4c1a-90b6-359e83cdc126" />
-
-
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3177ddkblmozlf6i35e2k4ues4ou&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=6F6F91&bar_color_cover=false">
-  </a>
+<p align="center"> <img width="95" alt="image" src="https://github.com/user-attachments/assets/4e3e472d-ed0b-4a5e-b836-34c6ea91f4ed" /> 
 </p>
 
+ </p>
+<img align="left" width="320" alt="image" src="https://github.com/user-attachments/assets/036abb2d-a619-44c5-9e37-e35ec2804865" /> 
+<p align="center"> <a href="https://jackpot.atabook.org/">
+ <img  width="205"  alt="image" src="https://github.com/user-attachments/assets/3c97eb3c-3b8b-440b-b4a8-5c7c7cc00065" />
+ <a href="https://fluffle.cc/chance">     
+ <img  width="205" src="https://github.com/user-attachments/assets/43a90570-6422-499a-b397-9ea4d7ed747c" />
+ </p>
+ <p align="left">               ‎                    ‎   ‎        ‎‎‎  ‎  ‎    ‎     ‎  ‎    ‎      ‎   ‎    ‎‎   ‎ ‎   ‎     ‎   
+
+
+
+
+<p align="center">               ‎                    ‎   ‎        ‎‎‎  ‎   ‎ ${\text{\color{#DDDECB}‎ ໃ ͝ 𓏼　 chance , Clover ⏦ﾟ}}$  </p>
+<p align="center"> ‎ ‎  ‎                ‎         ‎      ‎       ‎  ‎  ‎ ‎  ‎  ‎  ‎  ${\text{\color{#F3F5CE} 　 ͜𓐇⑅ 5teen / C*h freely ◟ `` ˖}}$ <img width="20" alt="letter" src="https://github.com/user-attachments/assets/99ce9cd2-8359-4037-b150-51c86f401a02" />
+ ‎   ‎     ‎   ‎   ‎       ‎     ‎      ‎     ‎     ‎  🍷   ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎  <img width="100"  alt="tumblr_b4490c23b13a3767a6747bbf2641024b_2d121a2f_100" src="https://github.com/user-attachments/assets/598da5bf-60a7-4731-b097-aaa6c38b554e" />
+ </p>
+
+<p align="center"> ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎     ‎  ‎  ${\text{\color{#C9C5AF}࣪  ˙  ౿. ꒷ "heads or tail?" 𝅄   ౨ৎ ㅤ۪ }}$ </p>
+<p align="left">   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  </p> 
+
+
+<p align="center"> <img width="400" alt="image" src="https://github.com/user-attachments/assets/e300aa26-eabf-43de-ab68-ea73b026b413" />
+ </p>
+ 
+
+ ‎ 
+ 
+ 
+ ‎     ‎  
+<p align="center">
+ <ins>   ${\text{\color{#F2F5B0}use pc for better view !!}}$  </ins>
+
+
+
+
+<p align="center"> <img width="900" height="200" alt="image" src="https://github.com/user-attachments/assets/80a60eea-58cb-4c33-b1a3-2e7b85408c37" />
+ </p>
