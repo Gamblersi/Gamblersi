@@ -2,8 +2,8 @@
    
    ![chance](https://hits.sh/github.com/Gamblersi.svg?label=♤+JACKPOTS&extraCount=2&color=242537&labelColor=242537)
 
-<img width="20" alt="25098" src="https://github.com/user-attachments/assets/3df91c3e-8310-4fee-afa5-d341db7d4c72" />
-<a href="https://github.com/pt-of-forsaken"> chance of ponytown! </a><img width="20"  alt="25097" src="https://github.com/user-attachments/assets/a11bcd1d-2964-4ff3-94f1-0c8ba7caeab0" />
+   <img width="26" alt="angel" src="https://github.com/user-attachments/assets/67be3ba3-c987-4ba1-8b87-9c7806933c4f" /><a href="https://github.com/pt-of-forsaken"> chance of ponytown! </a><img width="26" alt="angel" src="https://github.com/user-attachments/assets/01d3bd7d-0ae3-4ac9-95f4-660c5b653394" />
+
 
 <div align="center"> 
 
