@@ -29,7 +29,7 @@
 <details closed>
   <summary> ${{\color{#E3E3E3}  ABOUT ME ♧ }}$</summary>
  
-   howdy lad! you can call me chance or clover aight' I'm transmasc ♡ I strictly use he/they but I don't mind feminine pronounce only friends are allowed to use she/her around me tho! I am a heavy kin of chance , c'link and fullfic as well he's me and I'm him see me as such, do not copy my skins ' inspo are okay just not everything.
+   howdy lad! you can call me chance or clover aight' I'm transmasc ♡ I strictly use he/they but I don't mind feminine pronounce only friends are allowed to use she/her around me tho! I am a heavy kin of chance , c'link and fullfic as well he's me and I'm him see me as such, do not copy my skins ' inspo are okay just not everything. I sadly won't be active much because I'm grounded for personal issues but mostly semi-active for now
 </details>
 
 <details closed>
