@@ -27,13 +27,13 @@
 <img width="160" height="88" alt="25103" src="https://github.com/user-attachments/assets/436455d0-4fcf-417c-96ce-fbc58b45ff89" />
 
 <details closed>
-  <summary> ${{\color{#AFA7B6}  ABOUT ME ♧ }}$</summary>
+  <summary> ${{\color{#E3E3E3}  ABOUT ME ♧ }}$</summary>
  
    howdy lad! you can call me chance or clover aight' I'm transmasc ♡ I strictly use he/they but I don't mind feminine pronounce only friends are allowed to use she/her around me tho! I am a heavy kin of chance , c'link and fullfic as well he's me and I'm him see me as such, do not copy my skins ' inspo are okay just not everything.
 </details>
 
 <details closed>
-  <summary> ${{\color{#6F6F91} TITLES ♤ }}$</summary>
+  <summary> ${{\color{#E3E3E3} TITLES ♤ }}$</summary>
    <a href="https://github.com/casinotown"> casinotown </a> , <a href="https://github.com/pt-walk-of-fame"> pt-walk-of-fame </a> , <a href="https://github.com/pt-icon"> pt-icon </a> , <a href="https://github.com/pt-of-awesomeness"> pt-of-awesomeness </a> , <a href="https://github.com/pt-nominations"> pt-nominations </a> , <a href="https://github.com/pt-hall-of-media"> pt-hall-of-media </a> , <a href="https://github.com/ponytown-nominations"> ponytown-nominations </a> , <a href="https://github.com/title-town"> title-town </a> , <a href="https://github.com/fans-town"> fans-town </a> , <a href="https://github.com/ponychievements"> ponychievements </a> , <a href="https://github.com/charactersofpt"> charactersofpt </a> , <a href="https://github.com/FOLKTOWN"> FOLKTOWN </a> , 
 <a href="https://github.com/pt-fashion"> pt-fashion </a> , <a href="https://github.com/style-town"> style-town </a> , <a href="https://github.com/pt-loveforfictional"> pt-loveforfictional </a> , <a href="https://github.com/ship-town"> ship-town </a> , <a href="https://github.com/cosplaytown"> cosplaytown </a> , <a href="https://github.com/pt-heavyfictkin"> heavyfictkin </a> , <a href="https://github.com/Ponytowns-rewards"> ponytowns-rewards </a> , <a href="https://github.com/choco-town"> choco-town </a> , <a href="https://github.com/music-town"> music-town </a> , <a href="https://github.com/kaotown"> kaotown </a>
 </details>
