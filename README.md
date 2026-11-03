@@ -22,9 +22,9 @@
 
 <div align="center"> 
 
-<img width="157" height="93" alt="25105" src="https://github.com/user-attachments/assets/7ea12be4-75d3-4c33-82ed-c43f814b3acd" />
-<img width="157" height="93" alt="25104" src="https://github.com/user-attachments/assets/785b6878-7357-4149-acfe-b5781003162d" />
-<img width="160" height="88" alt="25103" src="https://github.com/user-attachments/assets/436455d0-4fcf-417c-96ce-fbc58b45ff89" />
+<img width="157"  alt="25105" src="https://github.com/user-attachments/assets/7ea12be4-75d3-4c33-82ed-c43f814b3acd" />
+<img width="157"  alt="25104" src="https://github.com/user-attachments/assets/785b6878-7357-4149-acfe-b5781003162d" />
+<img width="160"  alt="25103" src="https://github.com/user-attachments/assets/436455d0-4fcf-417c-96ce-fbc58b45ff89" />
 
 <details closed>
   <summary> ${{\color{#E3E3E3}  ABOUT ME ♧ }}$</summary>
