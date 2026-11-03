@@ -1,54 +1,29 @@
 <div align="center"> 
    
-   ![chance](https://hits.sh/github.com/Gamblersi.svg?label=♤+JACKPOTS&extraCount=2&color=AFA7B6&labelColor=6F6F91)
+   ![chance](https://hits.sh/github.com/Gamblersi.svg?label=♤+JACKPOTS&extraCount=2&color=242537&labelColor=242537)
 
-
-
-
-   <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Isometra&duration=750&pause=1000&color=FCF2E8&center=true&width=435&lines=%22Begins+with+c+ends+with+e%3F%22;%22Chance!%22;%22Chance!!%22;%22CHANCE!!!%22;%22Haters%3F+Squashed+immediately!%22;%22Chance!%22;%22Chance!!%22;%22CHANCE!!!%22" alt="Typing SVG" /></a>
-
-
-   <img width="26" alt="angel" src="https://github.com/user-attachments/assets/67be3ba3-c987-4ba1-8b87-9c7806933c4f" /><a href="https://github.com/pt-of-forsaken"> chance of ponytown! </a><img width="26" alt="angel" src="https://github.com/user-attachments/assets/01d3bd7d-0ae3-4ac9-95f4-660c5b653394" />
-
-
-
-<img align="left" width="390" alt="chance" src="https://github.com/user-attachments/assets/b7eceabe-55e8-436d-8983-1bd20e65de9c" />
-
-
-   
+<img width="20" alt="25098" src="https://github.com/user-attachments/assets/3df91c3e-8310-4fee-afa5-d341db7d4c72" />
+<a href="https://github.com/pt-of-forsaken"> chance of ponytown! </a><img width="20"  alt="25097" src="https://github.com/user-attachments/assets/a11bcd1d-2964-4ff3-94f1-0c8ba7caeab0" />
 
 <div align="center"> 
 
-  $\color{#AFA7B6}\textsf {゛ ᴄhᥲᥒce}$ $\color{#C7ACB3}\textsf {ou}$ $\color{#D6D1D7}\textsf {Cl᥆ѵᥱɾ 사    ﹒♡}$ <img width="20" alt="letter" src="https://github.com/user-attachments/assets/99ce9cd2-8359-4037-b150-51c86f401a02" />
 
+ <img align="center" width="409" alt="me" src="https://github.com/user-attachments/assets/06d8e057-9b33-4b9e-ab43-7b12d8ffb028" />
 
 
 <div align="center"> 
  
 <a href="https://jackpot.atabook.org/" />
-   <img src="https://github.com/user-attachments/assets/771195d5-c575-415e-ac3a-a5629a5d9bff" alt="ata" width="20%"/> </a><a href="https://fluffle.cc/chance" />
-   <img src="https://github.com/user-attachments/assets/51c45e0b-7904-4bf4-8fb0-604618b595e5" alt="fluffle.cc" width="20%"/>
+   <img src="https://github.com/user-attachments/assets/34bb699f-b10f-4c23-99e8-c1135e140867"
+ alt="ata" width="20%"/> </a><a href="https://fluffle.cc/chance" />
+   <img src="https://github.com/user-attachments/assets/cda7295a-4c36-4a45-8abf-43e1dad7d898" alt="fluffle.cc" width="20%"/>
 </a>
 
 
-<details closed>
-  <summary> ${{\color{#6F6F91} TITLES ♤ }}$</summary>
-   <a href="https://github.com/casinotown"> casinotown </a> , <a href="https://github.com/pt-walk-of-fame"> pt-walk-of-fame </a> , <a href="https://github.com/pt-icon"> pt-icon </a> , <a href="https://github.com/pt-of-awesomeness"> pt-of-awesomeness </a> , <a href="https://github.com/pt-nominations"> pt-nominations </a> , <a href="https://github.com/pt-hall-of-media"> pt-hall-of-media </a> , <a href="https://github.com/ponytown-nominations"> ponytown-nominations </a> , <a href="https://github.com/title-town"> title-town </a> , <a href="https://github.com/fans-town"> fans-town </a> , <a href="https://github.com/ponychievements"> ponychievements </a> , <a href="https://github.com/charactersofpt"> charactersofpt </a> , <a href="https://github.com/FOLKTOWN"> FOLKTOWN </a> , 
-<a href="https://github.com/pt-fashion"> pt-fashion </a> , <a href="https://github.com/style-town"> style-town </a> , <a href="https://github.com/pt-loveforfictional"> pt-loveforfictional </a> , <a href="https://github.com/ship-town"> ship-town </a> , <a href="https://github.com/cosplaytown"> cosplaytown </a> , <a href="https://github.com/pt-heavyfictkin"> heavyfictkin </a> , <a href="https://github.com/Ponytowns-rewards"> ponytowns-rewards </a> , <a href="https://github.com/choco-town"> choco-town </a> , <a href="https://github.com/music-town"> music-town </a> , <a href="https://github.com/kaotown"> kaotown </a>
-</details>
 
-<details closed>
-  <summary> ${{\color{#AFA7B6}  ABOUT ME ♧ }}$</summary>
- 
-   howdy lad! you can call me chance or clover aight' I'm transmasc ♡ I strictly use he/they but I don't mind feminine pronounce only friends are allowed to use she/her around me tho! I am a heavy kin of chance , c'link and fullfic as well , do not copy my skins ' inspo are okay just not everything.
-</details>
+<div align="center"> 
 
-<img width="320" alt="chance" src="https://github.com/user-attachments/assets/283f2f58-68ac-4c1a-90b6-359e83cdc126" />
+<img width="400" alt="me and him♡" src="https://github.com/user-attachments/assets/06b75565-3896-4108-962c-3c9939fa6f6c" />
 
-
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3177ddkblmozlf6i35e2k4ues4ou&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=6F6F91&bar_color_cover=false">
-  </a>
-</p>
-
+$\color{#959BA7}\textsf {me and my partner ♡ hello dearest}$
+   
