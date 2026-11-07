@@ -50,3 +50,7 @@ $\color{#959BA7}\textsf {me and my partner ♡ hello dearest}$ <img width="20" h
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3177ddkblmozlf6i35e2k4ues4ou&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=6F6F91&bar_color_cover=false">
   </a>
 </p>
+
+<p align="center">
+aren't I so kyut thank u markus for this drawing I'm so  fucking kyut
+<img width="3120" height="4160" alt="25622" src="https://github.com/user-attachments/assets/141dba32-235e-4d1c-9bac-18cd17886d9b" />
